@@ -1,0 +1,2 @@
+# Boxy-Privacy-Policy
+Temporary
